@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning more ui libraries and coding to soon make a app on the play store!
 - 🌱 Website: https://robloxexploithub03.000webhostapp.com/ | Exploit Statuses: https://exploitstatus247.betteruptime.com/
 - 💞️ I’m looking to collaborate on focusing on my own life.
-- 📫 How to reach me | https://discord.gg/byNxgtVKM4
+- 📫 How to reach me | https://discord.gg/kY9jbjeYjn
